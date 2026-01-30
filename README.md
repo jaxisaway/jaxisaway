@@ -1,2 +1,2 @@
 #### About Me
-programmer, guitarist, artist, hobbyist, student.
+programmer, guitarist, artist, student.

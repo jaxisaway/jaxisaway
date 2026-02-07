@@ -1,2 +1,2 @@
 #### About Me
-programmer, guitarist, artist, student @ uoft.
+programmer, guitarist, student @ uoft.
